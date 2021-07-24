@@ -7,5 +7,4 @@ Also dont skid lol if you do give credit
 if you need help add:
 
 Swishy#6669
- - discord.gg/trends
-    - discord.gg/federal
+
